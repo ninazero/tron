@@ -23,7 +23,7 @@
 ---
 ## 🎁 Limited-Time Free Offer Now On
 
-All features of the program are completely free to use at present.To deliver a more stable experience and launch more premium exclusive features, future updated versions will switch to a paid model.
+Fully transparent and compliant, fully open to inspection and review! Recently, there has been malicious slander from peers and self-directed rumors. They simply cannot tolerate our project’s reasonable and standardized operation. The new version is now available for free with benefits, and we will consider the charging plan appropriately in the future, which will surely disappoint those malicious detractors. 🛡️ You can perform a full security check with 360 Anti-Virus and other mainstream antivirus software for verification. Some people just love making unreasonable malicious attacks out of spite.
 
 ## 🧩 Features
 
