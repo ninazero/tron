@@ -1,6 +1,6 @@
 <div align="center">
 
-<h1>🔑 TronVanity Pro</h1>
+<h1>🔑 Tron靓号地址生成</h1>
 
 <h3>波场靓号 · 极速生成 · 精准匹配</h3>
 
