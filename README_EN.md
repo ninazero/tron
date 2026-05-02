@@ -1,6 +1,6 @@
 <div align="center">
 
-<h1>🔑 TronVanity Pro</h1>
+<h1>🔑 Tron Premium Address Generation</h1>
 
 <h3>TRON Vanity Address · High-Speed Generation · Precise Matching</h3>
 
